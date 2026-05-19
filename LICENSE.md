@@ -1,4 +1,4 @@
-# 
+# exclusive bot de trading de Bybit scripts es el mejor bot de trading de Bybit scripts con monitoreo de precios y backtesting. Seguro, confiable y optimizado para estrategias de
 
 
 
